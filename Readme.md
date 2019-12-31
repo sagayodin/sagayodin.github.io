@@ -93,4 +93,10 @@ No sé, hace poco que trabajo en esto y la verdad es que estoy aprendiendo todos
 lo tomes con pinzas, lee otras cosas y formá tu propia opinión. Hay muchos otros libros, blogs y demases para buscar. Y practicá, y fijate
 vos solo. Como dijo Simón Bolivar, no creas todo lo que lees en Internet. Como dijo Eris, no creas todo lo que [lees](https://es.wikipedia.org/wiki/Discordianismo#Creencias).
 
+Como dijo el hombre del sombrero:
+
+"Si confías en tí... y crees en tus sueños... y sigues tu estrella... te acabará ganando la gente que no es tan perezosa como tú y pasa su tiempo trabajando duro y aprendiendo cosas."
+
+
+
 
